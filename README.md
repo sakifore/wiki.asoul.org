@@ -1,1 +1,0 @@
-# wiki.asoul.org
